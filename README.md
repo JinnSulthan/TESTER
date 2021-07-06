@@ -1,10 +1,10 @@
-# NAZRIYANAZEEMBOT
+# ɴᴀᴢʀɪʏᴀɴᴀᴢᴇᴍʙᴏᴛ
 
-# MY ASSISTANT SHE WOULD MANAGE GROUPS. 
+# ᴍʏ ᴀꜱꜱɪꜱᴛᴀɴᴛ ꜱʜᴇ ᴍᴀɴᴀɢᴇꜱ ᴛʜᴇ ɢʀᴏᴜᴘ ᴡʜᴇɴɪ ᴀᴍ ʙᴜꜱʏ.......
 
 
 
-###SOME INFOS ABOUT [NAZRIYA](https://t.me/NAZRIYANAZEEMBOT) 
+# ꜱᴏᴍᴇ ɪɴꜰᴏꜱ ᴀʙᴏᴜᴛ [ɴᴀᴢʀɪʏᴀ](https://t.me/NAZRIYANAZEEMBOT) 
 
 <p align="center">
 <a href="https://t.me/NAZRIYAUPDATES"><img alt="NAZRIYA UPDTAES" src="https://img.shields.io/badge/NAZRIYA UPDATES-%23E4405F.svg?&style=for-the-badge&logo=TELEGRAM&logoColor=white"/></a>
@@ -22,7 +22,11 @@
 
  ![MR-JINN-OF-TG](https://telegra.ph//file/9f1a1ac3672991cbb7138.jpg) 
 
-
-OFFICIALLY YOU CAN CONTACT ME ON TELEGRAM [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/JINN_OF_TELEGRAM)  
-  BUT NOTIFY IT YOU MAY BE BLOCKED WITHOUT GETTING AUTHORIZATION FROM ME SO WHAT YOU WANT TO DO GO TO NAZRIYA SUPPORT GROUP AND ASK  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
+ 
+# ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/JINN_OF_TELEGRAM)  
+ 
+# ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀᴋ ᴘᴇʀᴍɪꜱꜱɪᴏᴊ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
+ 
+ ᴛʜᴇ ʀᴇᴀʟ ᴊɪɴɴ ɪꜱ ꜱᴛɪʟʟ ᴀʟɪᴠᴇ ᴜɴᴛɪʟ ᴅᴇᴀᴛʜ...........ᴀɴᴅ ɴᴏᴛ ᴛʜᴀᴛ ᴊɪɴɴ ᴡᴏᴜʟᴅ ɴᴏᴛ ᴅɪᴇ.............
+ ᴍᴇ ɪꜱ ᴀ ᴛʏᴘᴇ ᴏꜰ ᴊɪɴɴ ...................................................
   
