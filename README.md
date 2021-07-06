@@ -1,9 +1,11 @@
 # NAZRIYANAZEEMBOT
-MY ASSISTANT SHE WOULD MANAGE GROUPS. 
+
+# MY ASSISTANT SHE WOULD MANAGE GROUPS. 
 
 
 
 ###SOME INFOS ABOUT [NAZRIYA](https://t.me/NAZRIYANAZEEMBOT) 
+
 <p align="center">
 <a href="https://t.me/NAZRIYAUPDATES"><img alt="NAZRIYA UPDTAES" src="https://img.shields.io/badge/NAZRIYA UPDATES-%23E4405F.svg?&style=for-the-badge&logo=TELEGRAM&logoColor=white"/></a>
 <a href="https://t.me/NAZRIYASUPPORT"><img alt="NAZRIYA SUPPORT" src="https://img.shields.io/badge/NAZRIYA SUPPORT-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white"/></a>
