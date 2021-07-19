@@ -20,10 +20,10 @@
 <a href="https://t.me/NAZRIYANAZEEMBOT"><img alt="NAZRIYABOT" src="https://img.shields.io/badge/NAZRIYA BOT-%23E4405F.svg?&style=for-the-badge&logo=TELEGRAM&logoColor=white"/></a>
 
 
- ![MR-JINN-OF-TG](https://telegra.ph//file/9f1a1ac3672991cbb7138.jpg) 
+ ![MR-JINN-OF-TG](https://telegra.ph//file/95ebabd729d77fd2c215f.jpg) 
 
  
-# ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/JINN_OF_TELEGRAM)  
+# ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/MR_JINN_OF_TG)  
  
 # ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀᴋ ᴘᴇʀᴍɪꜱꜱɪᴏᴊ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
  
