@@ -23,7 +23,7 @@
  ![MR-JINN-OF-TG](https://telegra.ph//file/95ebabd729d77fd2c215f.jpg) 
 
  
-# ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/MR_JINN_OF_TG)  
+# ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/MR_JINN_OF_TG)  
  
 # ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀᴋ ᴘᴇʀᴍɪꜱꜱɪᴏᴊ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
  
