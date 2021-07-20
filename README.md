@@ -13,7 +13,7 @@
 
 <p align="center">
 <a href="https://t.me/NAZRIYAGBANLOGS"><img alt="GBAN LOGS" src="https://img.shields.io/badge/NAZRIYA GBAN LOGS-%23E4405F.svg?&style=for-the-badge&logo=TELEGRAM&logoColor=white"/></a>
-<a href="https://visi.tk/nazriya"><img alt="WEBSITE" src="https://img.shields.io/badge/WEBSITE-2CA5E0?style=for-the-badge&logo=WEBSITE&logoColor=white"/></a>
+<a href="https://visitme.vercel.app/nazriya"><img alt="WEBSITE" src="https://img.shields.io/badge/WEBSITE-2CA5E0?style=for-the-badge&logo=WEBSITE&logoColor=white"/></a>
 </p>
 
 <p align="center">
