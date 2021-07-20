@@ -25,7 +25,7 @@
  
 # ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/MR_JINN_OF_TG)  
  
-# ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀᴋ ᴘᴇʀᴍɪꜱꜱɪᴏᴊ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
+# ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀꜱᴋ ᴘᴇʀᴍɪꜱꜱɪᴏɴ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
  
  ᴛʜᴇ ʀᴇᴀʟ ᴊɪɴɴ ɪꜱ ꜱᴛɪʟʟ ᴀʟɪᴠᴇ ᴜɴᴛɪʟ ᴅᴇᴀᴛʜ...........ᴀɴᴅ ɴᴏᴛ ᴛʜᴀᴛ ᴊɪɴɴ ᴡᴏᴜʟᴅ ɴᴏᴛ ᴅɪᴇ.............
  ᴍᴇ ɪꜱ ᴀ ᴛʏᴘᴇ ᴏꜰ ᴊɪɴɴ ...................................................
