@@ -23,6 +23,16 @@
  ![MR-JINN-OF-TG](https://telegra.ph//file/95ebabd729d77fd2c215f.jpg) 
 
  
+ ### Credits :- 
+
+📍[Greyson Bot](https://github.com/Kunal-Diwan/GreysonBot) , 📍[Masha Robot](https://github.com/Mr-Dark-Prince/MashaRoBot) ,📍[Saitama Bot](https://github.com/AnimeKaizoku/SaitamaRobot) , 📍[Daisy X Bot](https://github.com/TeamDaisyX/Daisy-OLD)
+
+### Developers 👨‍💻
+
+[@THEREALMR_JINN_OF_TG](https://telegram.dog/THEREALMR_JINN_OF_TG) - Bot owner and manager
+[@Jimmioooo](https://telegram.dog/Jimmioooo) - Main developer
+[@kunaldiwan](https://telegram.dog/Kunaldiwan) - Developer 
+
 # ᴏꜰꜰɪᴄɪᴀʟʟʏ ʏᴏᴜ ᴄᴀɴ ᴄᴏɴʏᴛᴀᴄᴛ ᴍᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/MR_JINN_OF_TG)  
  
 # ʙᴜᴛ ʙᴇꜰᴏʀᴇ ᴘᴍ ɪɴɢ ᴍᴇ ᴊᴜꜱᴛ ᴀꜱᴋ ᴘᴇʀᴍɪꜱꜱɪᴏɴ ᴀᴛ ɴᴀᴢʀɪʏᴀ ꜱᴜᴘᴘᴏʀᴛ  [![Telegram](https://img.shields.io/badge/telegram-1b77FF.svg?style=for-the-badge&logo=telegram)](https://t.me/NAZRIYASUPPORT) 
@@ -30,3 +40,12 @@
  ᴛʜᴇ ʀᴇᴀʟ ᴊɪɴɴ ɪꜱ ꜱᴛɪʟʟ ᴀʟɪᴠᴇ ᴜɴᴛɪʟ ᴅᴇᴀᴛʜ...........ᴀɴᴅ ɴᴏᴛ ᴛʜᴀᴛ ᴊɪɴɴ ᴡᴏᴜʟᴅ ɴᴏᴛ ᴅɪᴇ.............
  ᴍᴇ ɪꜱ ᴀ ᴛʏᴘᴇ ᴏꜰ ᴊɪɴɴ ...................................................
   
+
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+
